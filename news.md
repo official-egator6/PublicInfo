@@ -1,1 +1,1 @@
-news with it live 1
+No news available to read.
